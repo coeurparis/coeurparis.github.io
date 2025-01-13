@@ -13,7 +13,7 @@ But, like life gave us a second chance, I'd like to pay forward. Let this watch 
 
 With time, as this watch ticks away, my love will steadily compound. It will be a part of your asset, whether you want it or not!
 
-But let this also be a constant reminder of the fact that, irrespective of the situations, constraints or risks, the way I guarded this watch this far, I will guard your interest,  happiness and you forever. You'll find me by your side every time you nedd me, come what may. Trust me, I'll find a way!
+But let this also be a constant reminder of the fact that, irrespective of the situations, constraints or risks, the way I guarded this watch this far, I will guard your interest,  happiness and you forever. You'll find me by your side every time you need me, come what may. Trust me, I'll find a way!
 
 I promise to protect, love, support, cheerlead, and be with the bearer of this watch, forever, whenever.
 
