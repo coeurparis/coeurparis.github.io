@@ -1,7 +1,7 @@
 ---
 layout: post
 title: Many More Lifetimes
-date: 2024-03-26
+date: 2025-03-26
 categories: blog
 ---
 
